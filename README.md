@@ -1,7 +1,5 @@
 - 👋 こんにちは, 私は @NHTfuntin31です。
 - 👀
-- 🌱 現在関西経理専門学校の情報コースで勉強しています。
-- 💞️ I’m looking to collaborate on ...
 - 📫 私の連絡先：080-6697-5312
 -               funtin3110@gmail.com
 
